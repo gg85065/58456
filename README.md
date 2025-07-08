@@ -18,4 +18,4 @@
 总的来说，日本AV免费资源在满足用户多样化需求的同时，也引发了版权、内容质量、法律监管等一系列问题。行业需要不断创新，探索可持续发展的路径，才能实现良性循环。未来，技术创新、内容多样化和版权保护将成为行业发展的核心驱动力。  
 
 
-<span style="display:none;">[Canonical link]( ）</span>
+<span style="display:none;">[Canonical link](https://github.com/gg85065/58456 ）</span>
